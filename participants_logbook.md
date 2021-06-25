@@ -66,3 +66,4 @@ Nooshineh Fallah Zabihi
   I hope I can participate in similar events in person soon. Thank you all very much! Martin Schneider 
   
  * Fantastic summer school, thanks and all the best! - Kong You Liow
+ * A very good and informative school. I have learned a lot. Thank you very much. Gamal Hamed
